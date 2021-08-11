@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @WeebDeV1
-- 👀 I’m interested in anime, coding and
+- 👀 I’m interested in anime, coding
 - 🌱 I’m currently learning JavaScript and HTML(i kinda suck)
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me I Have discord: /アフロボーイ#1549
